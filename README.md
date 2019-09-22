@@ -1,1 +1,1 @@
-# en.lanka-guide.com
+# lanka-guide.com
